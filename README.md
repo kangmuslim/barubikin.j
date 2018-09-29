@@ -1,0 +1,2 @@
+# barubikin.j
+baru bikin
